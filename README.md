@@ -6,4 +6,4 @@ Use my code and adapt it according to the instructions for each project.**
 # **Support**
 Email - german.suraev.1@gmail.com, germanatorinwater@gail.com
 
-Telegram - t.me/germanatorbs
+Telegram - @germanatorbs
